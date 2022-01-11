@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @accumulatelayers
+- 👀 I’m interested in coding cheats for CS:GO & learning new skills in C++
+- 🌱 I’m currently learning adult life, how to fix problems in your personal life and generally does not depend on anyone
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me vk.com/avitoscambiz3
